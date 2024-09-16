@@ -1,4 +1,4 @@
-## Olá! Eu sou o Danilo Manzoli🖐️
+## Olá! Eu sou o Danilo Santos Manzoli🖐️
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/danilo-santos-manzoli-2961ba212/)
 
